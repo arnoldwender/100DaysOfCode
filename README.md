@@ -63,5 +63,5 @@ Please show your support by giving this repository a star ⭐
 - 👉 [![Support](https://img.shields.io/badge/Support-Buy%20Me%20A%20Coffee-orange?style=flat-square)](https://ko-fi.com/dhanushnehru)
 - 👉 [![Github Sponsor](https://img.shields.io/badge/Sponsor-💖-brightgreen)](https://github.com/sponsors/DhanushNehru)
 
-### Connect 👉 [**Twitter**](https://twitter.com/Dhanush_Nehru) **/** [**Instagram**](https://www.instagram.com/dhanush_nehru/) **/** [**Github**](https://github.com/DhanushNehru/) **/** [**Youtube**](https://www.youtube.com/@dhanushnehru?sub_confirmation=1) **/** [**Newsletter**](https://dhanushn.substack.com/) **/** [**Discord**](https://discord.com/invite/Yn9g6KuWyA)
+#### Connect 👉 [**X**](https://x.com/Dhanush_Nehru) **/** [**Instagram**](https://www.instagram.com/dhanush_nehru/) **/** [**Github**](https://github.com/DhanushNehru/) **/** [**Youtube**](https://www.youtube.com/@dhanushnehru?sub_confirmation=1) **/** [**Newsletter**](https://dhanushn.substack.com/) **/** [**Discord**](https://discord.com/invite/Yn9g6KuWyA)
 
